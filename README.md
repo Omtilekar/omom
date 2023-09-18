@@ -1,2 +1,0 @@
-# omom
-ssss
